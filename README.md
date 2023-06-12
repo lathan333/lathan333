@@ -1,4 +1,4 @@
-👋 Hi, I'm Lathan!
+👋 Hi, I'm Lathan! 
 
 🎓 Recent Cybersecurity Graduate | Open to Work
 
